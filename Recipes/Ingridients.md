@@ -1,0 +1,1 @@
+Ingredients (1 cup = 240ml ) 4 slices bread (prefer whole grain) 2 to 4 slices mozzarella cheese (or ½ to ¾ cup grated cheese) 1 tbsp unsalted butter as needed. ½ tsp oregano or any Italian herbs. ½ to 1 tsp chili flakes (Red or green chilies (skip for kids)) ½ to 1 tsp pepper crushed.
